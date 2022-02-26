@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pheuspogi0628 im new here
-- 👀 I’m interested in ... in learning to code
+- 👀 I’m interested in ... learning to code
 - 🌱 I’m currently learning ... in philippines san fransico de sales school
 - 💞️ I’m looking to collaborate on ...
 -
